@@ -2,9 +2,9 @@
 
 The beloved Christmas carol "Silent Night" (“Stille Nacht” in its original German) traces its roots to a humble Austrian village in 1818. Written by Joseph Mohr, a young priest, and composed by Franz Xaver Gruber, a local schoolteacher, this timeless hymn was first performed on Christmas Eve in St. Nicholas Church in Oberndorf. The simplicity of its origin story mirrors the humble message of the song, setting the tone for its enduring legacy.
 
-[➤ ►🌍👉 Click here to Watch Now (2024)](https://shortx.today/lyrics)
+[➤ ►🌍👉 Silent Night Lyrics - Christmas Song (2024)](https://shortx.today/lyrics)
 
-[➤ ►🌍👉 Click here to Download (2024)](https://shortx.today/lyrics)
+[➤ ►🌍👉 Silent Night Lyrics - Christmas Song (2024)](https://shortx.today/lyrics)
 
 
 2. "Silent Night, Holy Night" – A Study of Serenity
